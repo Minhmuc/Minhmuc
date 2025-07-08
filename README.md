@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on M.I.N.H AI<br>🌱 I’m currently learning something<br>💬 Ask me about what?<br>⚡ Fun fact ...
+🔭 I’m currently working on M.I.N.H AI<br>🌱 I’m currently learning something<br>💬 Ask me about what?<br>⚡ Fun fact: My Intelligence? Not High(Level up your vigor!)
 
 
 ## 🌐 Socials:
